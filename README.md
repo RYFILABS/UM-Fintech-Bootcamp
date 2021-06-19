@@ -2,7 +2,7 @@
 
 ---
 
-My name is Ryan Weier, I'm a tech enthusiast, motor head, foodie, and movie goer
+My name is Ryan Weier, I'm a tech enthusiast, motor head, foodie, and movie buff.
 
 I have a background in a few different fields. Since I graduated high school I've worked as a Realtor, Personal Cruise Consultant, ACAD Draftsman, Cost Estimator, and a Digital Marketer.
 
